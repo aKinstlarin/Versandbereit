@@ -1,7 +1,7 @@
-![Verdichtetes Leben](VerdichtetesLeben.jpg)
-# Verdichtetes Leben
+![Versandbereit](VerdichtetesLeben.jpg)
+# Versandbereit
 
-**Titel:** Verdichtetes Leben
+**Titel:** Versandbereit
 **Technik:** Öl auf Leinwand  
 **Größe:** 70 × 70 × 4,5 cm  
 **Jahr:** 2026  
