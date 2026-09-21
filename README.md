@@ -1,4 +1,4 @@
-![Verdichtetes Leben](PHOTO-2026-08-22-20-45-22.jpg)
+![Verdichtetes Leben](VerdichtetesLeben.jpg)
 # Verdichtetes Leben
 
 **Titel:** Verdichtetes Leben
